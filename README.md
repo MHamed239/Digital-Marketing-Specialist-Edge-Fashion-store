@@ -1,2 +1,2 @@
-# Digital-Marketing-Specialist-Edge-Fashion-store
+# Digital-Marketing-Specialist
 The project Edge Fashion Store 
